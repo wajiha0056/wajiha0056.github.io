@@ -1,0 +1,1 @@
+# wajiha0056.github.io
